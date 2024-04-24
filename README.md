@@ -30,3 +30,14 @@
 5、打开浏览器，参考<说明文档.txt>中的地址
 
 ***************************************************************
+
+![74e44cac77ac2377ff9693ccba86183](https://github.com/hjsdjko/stglxt_007/assets/120558513/a7c064c0-0883-4ced-91e7-f3ae9ed2a20a)
+
+![d2fbf3f588f8c7afe5131aea8d8ad18](https://github.com/hjsdjko/stglxt_007/assets/120558513/1487bd77-ed6a-48f6-bccc-4c00c6728937)
+
+![2895fbd9a1daae369c720df5903862b](https://github.com/hjsdjko/stglxt_007/assets/120558513/16b00fb6-13c7-41ba-b05e-58a2d7671fb7)
+
+![c03dc222325574b0e1dcf1c4aa002eb](https://github.com/hjsdjko/stglxt_007/assets/120558513/e78e469d-c52a-496e-adca-29a44746d907)
+
+![9ba9b29646f563f0dab5f6c354bf630](https://github.com/hjsdjko/stglxt_007/assets/120558513/a2a60217-83f0-4986-b5e3-81d238f6f890)
+
